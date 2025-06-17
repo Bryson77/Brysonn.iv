@@ -1,7 +1,7 @@
 # Hi, I'm Bryson.
 📕Computer Science Student. <br/>
 🧠Programming and Graphic Design.<br/>
-🥇I play Soccer, Basketball and Game during my free time.<br/>
+🥇I play Soccer and Game during my free time.<br/>
 💼I manage Social media influencers, Co-Run a Youtube Channel for DJs, Dancers and Artists.<br/>
 📱Here is my instagram: <https://www.instagram.com/brysonn.iv/?__pwa=1>
 
